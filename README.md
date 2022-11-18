@@ -1,0 +1,5 @@
+- 👋 Hii im Miles!
+- 👀 I like gorilla tag mods.
+- 🌱 Im currently learning python.
+- 💞️ Im looking to become a popular gtag youtuber.
+- 📫 Discord is LuaGodMiles#0977.
